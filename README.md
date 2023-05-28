@@ -1,1 +1,1 @@
-@Chukamin, Taiwan
+@Chukamin
